@@ -1,1 +1,0 @@
-# aidilfsya.github.io
